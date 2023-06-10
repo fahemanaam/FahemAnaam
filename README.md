@@ -11,7 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with my projects 
 - 💬 Ask me about my linkedin
 - 📫 How to reach me: fahemye@mail.ru
-- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
 
